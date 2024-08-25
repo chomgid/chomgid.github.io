@@ -1,1 +1,0 @@
-# chomgid.github.io
